@@ -1,0 +1,6 @@
+- [https://www.quora.com/profile/Jeeny-Huynh-Dang](https://www.quora.com/profile/Jeeny-Huynh-Dang)
+- [https://www.reddit.com/user/Maleficen2132/](https://www.reddit.com/user/Maleficen2132/)
+- [https://www.youtube.com/channel/UC5Zy26zprGDvDHQJY3ExPTw](https://www.youtube.com/channel/UC5Zy26zprGDvDHQJY3ExPTw)
+- [https://x.com/juliiovn](https://x.com/juliiovn)
+- [https://medium.com/@helenlester](https://medium.com/@helenlester)
+- [https://www.pinterest.com/huynhdangheeny/](https://www.pinterest.com/huynhdangheeny/)
